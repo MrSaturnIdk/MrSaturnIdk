@@ -3,5 +3,6 @@
 + I (jokably) worship a capybara named Gort. We call it Gortism. It all really started when I decided to center the group chat with my friends on him. Then it escalated. Me and my friend also made a joke subreddit about this (linked in socials)
 and I also centered my discord server (linked in socials) around him. If you want to take the joke and join, check the subreddit.
 + he/him
++ Central US time (Chicago time)
 
 [my social links](https://mrsaturnidk.github.io/socials)
